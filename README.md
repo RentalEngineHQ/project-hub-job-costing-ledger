@@ -1,4 +1,4 @@
-# Project Hub & Job Costing Ledger Infrastructure • Multi-Trade Project Controls Matrix
+# Trade Subcontractor Project Hub Excel Template: Job Costing (No Subscriptions)
 
 Corporate Operations Back-Office Dashboard & Standalone Management Engine
 
@@ -9,7 +9,7 @@ Corporate Operations Back-Office Dashboard & Standalone Management Engine
 ### 🔑 SECURE ENTERPRISE PROCURE CONDUIT
 Bypass bloated monthly software licensing fees instantly. Secure your permanent, offline dark-mode corporate Excel operating workbook below:
 
-### [👉 PROCURE THE EXCEL OPERATION ENGINE NOW ($149.00)](https://rentalengine.gumroad.com)
+### [👉 PROCURE THE EXCEL OPERATION ENGINE NOW ($149.00)](https://rentalengine.gumroad.com/l/kpuhs)
 
 *⚡ One-Time Corporate License. Permanent Local Ownership. Instant Vault Delivery.*
 
